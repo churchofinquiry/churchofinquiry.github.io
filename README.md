@@ -1,4 +1,3 @@
-# The Church of Inquiry
 <h1 align="center">The Church of Inquiry</h1>
 
 The Church of Inquiry believes that the universe has a Creator, that we exist for a purpose, and that there’s a path of accessible evidence that suggests the Creator is knowable to us through the methods and practice of science. We believe our purpose is to follow that path of evidence because we believe that it is within everyone’s power to achieve a direct, verifiable, repeatable experience with the Creator.
