@@ -12,5 +12,5 @@ It is through this practice that we honor and find communion with the Creator. A
 Honor the Creator. Honor the creation.
 
 <div align="center">
-<img src="church-of-inquiry-logo.png" />
+<img src="church-of-inquiry-logo.png" width="20%" />
 </div>
